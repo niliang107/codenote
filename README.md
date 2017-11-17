@@ -1,0 +1,2 @@
+# codenote
+work for all 
